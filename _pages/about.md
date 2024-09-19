@@ -13,7 +13,7 @@ Under the guidance of Prof. [Yan Jie](https://xnyxy.ncepu.edu.cn/szdw/jsdw/js/a7
 
 You can find my CV/Resume here: [CV(2024)](https://unscmol.github.io/Ziyun.Z.github.io/assets/zzy_cv.pdf)
 
-**_🔴 I am actively looking for a PhD position in 2025 Fall. I’m open to any meaningful research topics during my doctoral studies._**
+**_🔴 I'm on the lookout for the perfect job that will allow me to unlock my full potential and truly make a difference._**
 
 Education
 ======
